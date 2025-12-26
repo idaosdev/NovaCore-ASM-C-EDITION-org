@@ -1,0 +1,1 @@
+ © 2025 NOVA-CORE . All rights reserved.
